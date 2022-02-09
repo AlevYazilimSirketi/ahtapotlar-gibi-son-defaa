@@ -1,0 +1,1 @@
+# ahtapotlar-gibi-son-defaa
